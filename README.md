@@ -1,3 +1,0 @@
-# pythonhomewortk
-
-vaishnavikodali
